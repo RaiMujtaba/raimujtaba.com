@@ -11,4 +11,4 @@ tags:
 
 Happy Ramadan to all Muslims all over the world. 
 
-Help your fellow beings during these days of crisis in this blessed month. 
+Help your fellow beings during these days of crisis in this blessed month.
